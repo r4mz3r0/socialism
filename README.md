@@ -8,3 +8,4 @@ Socialism is very diverse and all socialist have different views.
 # Does believing in socialism mean you have to give away your belongings and live in extreme poverty? 
 *No* 
 - Socialist are allowed to participate in their economic system while maintaining their beliefs.
+- Socialism is about shared ownership. We all deserve the fruits of our labor. 
